@@ -4,4 +4,8 @@ Things that I find interesting.
 
 - HoloEN - oddloop | Hololive Animation - https://www.youtube.com/watch?v=DigfGlWZHrk
 - Frederic - Oddloop MV PH version (fan made) - https://www.youtube.com/watch?v=_ysFCigbdAc
-- ???? - https://www.youtube.com/watch?v=-4mgpsBclq8
+
+# Mariya T. - Plastic Love
+
+- Plastic Peradaban https://www.youtube.com/watch?v=o4-I-dYINLU
+- Plastic Bass https://www.youtube.com/watch?v=il80-8sjb94
